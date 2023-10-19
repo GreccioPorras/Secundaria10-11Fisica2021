@@ -1,0 +1,2 @@
+Infografía Efectos de Ondas Gabriela Zeledón
+Ondas_efectos_infografía_FísicaUndécimo_Eje1_GabrielaZeledón

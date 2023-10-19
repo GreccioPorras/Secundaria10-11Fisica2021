@@ -1,0 +1,2 @@
+Inforgrafía fenómenos campo magnético Gabriela Zeledón
+FenómenosCampoMagnético_Infografía_FísicaUndécimo_Eje1_GabrielaZeledón

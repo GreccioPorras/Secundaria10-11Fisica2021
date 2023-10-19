@@ -1,0 +1,2 @@
+Conceptos Ondas Gabriela Zeledón
+Ondas_Conceptos_FísicaUndécimo_Eje1_GabrielaZeledón
