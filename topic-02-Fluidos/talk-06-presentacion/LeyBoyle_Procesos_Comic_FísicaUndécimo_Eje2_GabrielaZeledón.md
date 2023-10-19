@@ -1,2 +1,2 @@
 Comic Ley de Boyle Gabriela Zeledón
-LeyBoyle_Procesos_Comic_FísicaUndécimo_Eje2_GabrielaZeledón
+

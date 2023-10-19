@@ -1,2 +1,2 @@
 Mapa Conceptual Ley Ohm Gabriela Zeledón
-LeyOhm_MapaConceptual_FísicaUndécimo_Eje1_GabrielaZeledón
+

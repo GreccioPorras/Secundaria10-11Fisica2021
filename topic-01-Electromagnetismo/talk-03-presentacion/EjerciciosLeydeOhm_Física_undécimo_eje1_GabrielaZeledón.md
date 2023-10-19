@@ -1,2 +1,2 @@
 Ejercicios Ley de Ohm Gabriela Zeledón
-EjerciciosLeydeOhm_Física_undécimo_eje1_GabrielaZeledón
+

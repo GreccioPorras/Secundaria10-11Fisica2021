@@ -1,2 +1,2 @@
 Ejercicios campo magnético Gabriela Zeledón
-Campo_electromagnetico_ejercicios_FísicaUndécimo_Eje1_GabrielaZeledón
+

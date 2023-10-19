@@ -1,2 +1,2 @@
 Infografía Teoría de la Relatividad Gabriela Zeledón
-TeoríaRelatividadEnTecnología_Infografía_FísicaUndécimo_Eje3_GabrielaZeledón
+

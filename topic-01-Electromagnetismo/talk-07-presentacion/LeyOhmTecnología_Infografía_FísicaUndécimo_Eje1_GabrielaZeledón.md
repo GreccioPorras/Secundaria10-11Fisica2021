@@ -1,2 +1,2 @@
 Infografía Ley Ohm Tecnología Gabriela Zeledón
-LeyOhmTecnología_Infografía_FísicaUndécimo_Eje1_GabrielaZeledón
+

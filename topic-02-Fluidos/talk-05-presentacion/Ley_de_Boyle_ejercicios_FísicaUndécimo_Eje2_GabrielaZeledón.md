@@ -1,2 +1,2 @@
 Ejercicios Ley de Boyle Gabriela Zeledón
-Ley_de_Boyle_ejercicios_FísicaUndécimo_Eje2_GabrielaZeledón
+

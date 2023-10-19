@@ -1,2 +1,2 @@
 Infografía Radiaciones Gabriela Zeledón
-Radiaciones_infografía_FísicaUndécimo_Eje1_GabrielaZeledón
+
